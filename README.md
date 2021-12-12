@@ -78,6 +78,6 @@ Discord: Eclipse♡#0001
 
 [QiWi](https://qiwi.com/n/THEARTEMII)
 
-[Друг который помогал](https://discord.gg/J5JEKTJw)
+[Друг который помогал](https://discord.gg/eeXvjgEAP7)
 
 ![This is an image](https://media.discordapp.net/attachments/853327561551249428/919596786941849681/image0-4.gif)
